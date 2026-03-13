@@ -2,10 +2,10 @@
   <img src="https://i.ibb.co/mrP8zpqB/mwp4rxbl91w61.png">
 </h1>
 
-`- Ivoirian Swiss`
+`- Ivoirian Swiss 🇨🇮/🇨🇭`
 
 `- Marxist-Leninist (Learning Maoism) ☭`
 
-`- Python & HTML/CSS/JS`
+`- Python & HTML/CSS/JS 💻`
 
-`- Rei Ayanami 1st fan`
+`- Neon Genenis Evangelion fan ♱`
