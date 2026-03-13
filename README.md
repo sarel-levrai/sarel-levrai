@@ -9,3 +9,5 @@
 `- Python & HTML/CSS/JS 💻`
 
 `- Neon Genenis Evangelion fan ♱`
+
+`- Linux & BSDs enthusiast 🐧`
