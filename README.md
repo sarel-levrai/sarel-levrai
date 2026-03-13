@@ -3,6 +3,9 @@
 </h1>
 
 `- Ivoirian Swiss`
+
 `- Marxist-Leninist (Learning Maoism) ☭`
+
 `- Python & HTML/CSS/JS`
+
 `- Rei Ayanami 1st fan`
