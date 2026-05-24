@@ -11,3 +11,5 @@
 `- Neon Genenis Evangelion fan ♱`
 
 `- Linux & BSDs enthusiast 🐧`
+
+https://guns.lol/sarel
